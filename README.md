@@ -5,7 +5,7 @@
 - 📫 How to reach me +201205621943 phone /https://www.facebook.com/profile.php?id=100023526668251&mibextid=LHkPGVQP5RamZ00 
 - https://www.instagram.com/omarahmed2290?igsh=YzljYTk1ODg3Zg==
 - 😄 Pronouns: omar ahmed
-- ⚡ Fun fact: i spend much time plaiying league of legends
+- ⚡ Fun fact: i spend much time playing league of legends
 
 <!---
 Omarahmed2003om/Omarahmed2003om is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
